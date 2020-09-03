@@ -4,4 +4,4 @@ some text
 \n
 Rajath Adiga T R
 
-![](Images/Screenshot from 2020-09-03 12-19-21.png)
+![](Images/wallpapersden.com_rising-planet-behind-tree_2560x1440 (copy).jpg)
